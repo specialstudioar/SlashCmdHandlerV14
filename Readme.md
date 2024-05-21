@@ -2,7 +2,7 @@
 
 ```Source is Made By Special Studio```
 
-**Special Link:** https://discord.gg/zYQzCyXYnE
+**Special Link:** [Discord Server](https://discord.gg/wbqYJG4HDd)
 
 
 ```Usage:```
